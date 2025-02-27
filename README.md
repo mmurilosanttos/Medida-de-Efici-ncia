@@ -1,0 +1,1 @@
+# Medida-de-Efici-ncia
